@@ -1,0 +1,2 @@
+# Wisdom
+Knowledge is power
